@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @akiragirl1
+- 👋 Hi, I’m @akira
 - 👀 I’m interested in books
 - 💞️ I’m looking for nothing meow
 - 📫 How to reach me idk jaja
